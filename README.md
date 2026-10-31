@@ -7,8 +7,6 @@
 
 - 👯 I’m looking to collaborate on **AlloArtisan**
 
-- 📫 How to reach me **ka.josuehugues.ing@gmail.com**
-
 - 📄 Know about my experiences [https://drive.google.com/file/d/1LfEvkY1OGVdUUP4xzaRsfa9PUo01YQYR/view?usp=sharing](https://drive.google.com/file/d/1LfEvkY1OGVdUUP4xzaRsfa9PUo01YQYR/view?usp=sharing)
 
 - ⚡ Fun fact **I'm B1 in english 😅. Basketball player🏀⛹️,creative mind ...**
